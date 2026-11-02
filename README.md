@@ -1,0 +1,1 @@
+# upscalix-email-assets
